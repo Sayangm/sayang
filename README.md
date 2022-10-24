@@ -1,1 +1,1 @@
-# selamat datang di ch kami jangan lupa join ch kami
+# selamat datang di Chanel kami jangan lupa join chanel kami
